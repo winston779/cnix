@@ -1,6 +1,6 @@
 # ssrcloud CNIX官网地址
 
-最新地址：[https://nozomi.wtf/](https://nozomi.wtf/)
+最新地址：[https://nozomi.wtf/](https://ace-taffy.com/auth/register?code=2dxl)
 
 ## CNIX介绍
 
